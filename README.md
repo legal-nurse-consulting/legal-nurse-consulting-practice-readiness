@@ -6,6 +6,8 @@
 
 This research whitepaper examines whether academic prestige, accreditation, and certification are reliable indicators of preparation for independent legal nurse consulting practice.
 
+![Five Components of Practice-Ready Legal Nurse Consultant Training](https://www.lncstat.com/research/imgs/Five-Components-for-earning-income-as-a-legal-nurse-consultant.webp)
+
 The paper explores the difference between completing a course and becoming practice-ready, including:
 
 - Comprehensive legal nurse consultant training
